@@ -5,4 +5,3 @@
 
 
 :Р 
-ya ustal
